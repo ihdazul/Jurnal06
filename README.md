@@ -1,1 +1,1 @@
-# Jurnal06
+# Jurnal06 IHDAZUL ARUNA SYAHRIAR
